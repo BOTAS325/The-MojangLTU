@@ -1,0 +1,2 @@
+# The-MojangLTU
+labas visiem!
